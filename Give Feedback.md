@@ -6,7 +6,7 @@ Although she wasn't obligated to provide feedback, her timely response really en
 
 Second, give feedback in a positive way. The sandwich model (positive-negative-positive) usually works.
 Additionally, framing matters. For example, I received feedback that said, "Your work is creative but needs more clarification." 
-This sentence sounds more acceptable than, "What you say is ambiguous."  A "sandiwch" framework could be helpful:positive-negative-negative. 
+This sentence sounds more acceptable than, "What you say is ambiguous."  
 
 Third, give written feedback. 
 One professor I work with as a Teaching Assistant provides oral feedback during class and follows up with written feedback via email after class to help students better understand.
