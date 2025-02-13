@@ -1,4 +1,10 @@
-Students do not show in the class -- ask the staff who is responsible for this
+**Students do not show up in class**
+- Ask the staff who is responsible for this.
+  
+**Student athletes**
+- Get to know your students at the beginning and communicate with them.
+  
+**Students ask irrelevant questions**
+- We can discuss this after the class.  
 
-Student athelete -- know your students at the begining and communicating with them 
 
