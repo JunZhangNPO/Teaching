@@ -3,3 +3,7 @@ How to make PA_History Fun?
 - Environment focus, why did scholars have these thoughts in that time?
 - Debate format: such as Simon vs. Waldo
 - If you were the scholar, how will do convince public managers to adopt your thoughts? 
+
+Documentaries or Entertainments 
+- City Hall (2020)
+- Join or Die (2024)
