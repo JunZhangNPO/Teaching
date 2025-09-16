@@ -16,7 +16,7 @@
 ### Next steps
 - [ ] Open with a quick needs-and-expectations poll (2–3 minutes)
 - [ ] Offer two paths: discussion-only or discussion + game
-- [ ] Provide an opt-out for micro-teaching or add warm-up steps
+- [ ] Add warm-up steps: the goal of this activity, the potential of applying it in real settings   
 - [ ] Collect structured feedback at the end to iterate
 
 ### Quick prompt to gather expectations (copy/paste)
