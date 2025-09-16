@@ -1,0 +1,2 @@
+- What are common pronounciation mistakes made by Chinese speakers?
+- https://www.youtube.com/watch?v=VvFWX2I7Nz8
