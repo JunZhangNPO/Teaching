@@ -1,0 +1,5 @@
+- The Reflection from reading The Art of War by Sun Tzu
+- “One hundred victories in one hundred battles is not the most skillful. Subduing the other’s military without battle is the most skillful.”
+- a conflict can be prevented from developing into something nasty—or developing at all.
+- The concept of “taking whole”: conquering with a minimum of force and with little destruction.
+- In contrast, if we believe in the need for “win/lose” outcomes then we are dependent on aggression and force. The Sun Tzu way is to think less in terms of “the enemy,” but rather the Tao of the whole situation—that is, the way it seems to be moving—so that you and the other actor almost become one. 
